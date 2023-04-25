@@ -33,7 +33,7 @@
 
 👤 **HAFED EFEHIJ**
 
--  Linkdin: [@hafedEfheij](https://linkedin.com/hafedEfheij)
+-  Linkedin: [@hafedEfheij](https://www.linkedin.com/in/hafedefhej/)
 -  GitHub: [@hafedEfheij](https://github.com/hafedEfheij)
 
 <p align="right">(<a href="#readme-top">back to top</a>)</p>
